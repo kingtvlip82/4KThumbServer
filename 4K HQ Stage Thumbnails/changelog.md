@@ -1,2 +1,2 @@
 ## 4K HQ Thumbnails V1.5
-- All Day Stages (& DLCs) Thumbnails have been added.
+- Spagonia, Mazuri, Holoska, Chun-Nun, Emprie City and Shamar Day (& DLCs) Thumbnails have been added.
